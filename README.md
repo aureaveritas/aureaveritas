@@ -1,1 +1,1 @@
-***Aurea Veritas*** is a monetary research and innovation organization.
+***Aurea Veritas*** is a financial innovation movement shaping the future of money.
